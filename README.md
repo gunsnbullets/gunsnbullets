@@ -24,9 +24,9 @@ C + H is always okay (unless my name says DNI).
 <br>
 W2I. I'm usually offtab and never check PT.
 <br>
-Don't copy my skins. Inspo n' color-picking is fine.
+Don't copy my skins. Inspo and color-picking is fine.
 <br>
-I'm a [sys. co-host](https://murray-diary.carrd.co) and a [fictive](https://mandela-catalogue.fandom.com/wiki/Adam_Murray). DNI if that weirds you out.
+I'm a [syshost](https://murray-diary.carrd.co) and a [fictive](https://mandela-catalogue.fandom.com/wiki/Adam_Murray). DNI if that weirds you out.
 <br>
 ***Int with caution if you're under 13/older than 18 (bodily).***
 </p>
