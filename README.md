@@ -38,5 +38,5 @@ No DNI otherwise. I block freely.
 <br>
 Click my links for more info I dunno.
 <br>
-[Add me on discord. :^)](https://guns.lol/phasmophobic)
+[Add me on discord. :^)](https://guns.lol/vhs)
 </p>
