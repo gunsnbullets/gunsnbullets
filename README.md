@@ -20,4 +20,4 @@
   </tr>
   </table>
 
-  ib: rat named [Kaveh](https://github.com/situationcritical).
+  ib: rat named [Kaveh](https://github.com/inuday).
