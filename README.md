@@ -1,4 +1,4 @@
-<img align="left" width="300" height="350" src="https://i.postimg.cc/Nj153M2D/Untitled78-20260328123719.png">
+<img src="https://i.postimg.cc/Nj153M2D/Untitled78-20260328123719.png" align="left" width="300">
 
 
 
